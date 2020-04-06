@@ -6,7 +6,7 @@ Californian fields
 required for entry.  
 Do you remember how to identify  
 trees, trucks, bikes  
-loose ends.  
+loose ends?  
 Ancient and forgetful, operating  
 language  
 unreadable  
