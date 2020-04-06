@@ -1,5 +1,4 @@
 # Humans
-an Open Poem
 
 Continually reduced to knowing  
 inorganic sublimity, blurred edges and hard corners  
